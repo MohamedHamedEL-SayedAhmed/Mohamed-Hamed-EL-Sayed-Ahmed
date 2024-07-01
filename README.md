@@ -1,4 +1,4 @@
-# Mohamed-Hamed-EL-Sayed-Ahmed
+
 👋 Hi, I’m Mohamed Hamed EL-Sayed Ahmed
 👀 I’m Data Analytics Professionals.
 🌱 I’m currently a Data Analytics And learning Google And IBM.
